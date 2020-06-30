@@ -1,2 +1,0 @@
-# xiaotuzibolixin
-long long ago
